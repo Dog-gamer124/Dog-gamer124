@@ -1,5 +1,5 @@
 ### Hi there 👋 i am a dog and uh... i *try* to code
-### also i think thonk is spying on me :flushed:
+### also uh E 
 <!--
 **Dog-gamer124/Dog-gamer124** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile. yes
  
